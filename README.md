@@ -215,4 +215,4 @@ Champions World Class Soccer is offered as a complete free version, with all fea
 Don't miss out on this opportunity! Download Champions World Class Soccer now and experience the excitement of classic soccer gaming on your Windows PC!
 
 ---
-**Last updated:** 2026-10-09 23:44:10 UTC
+**Last updated:** 2026-10-10 03:29:02 UTC
